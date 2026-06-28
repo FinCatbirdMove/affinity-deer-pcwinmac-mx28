@@ -1,4 +1,4 @@
-# 
+# Premium Affinity Designer efectos para Mac OS | Mejor Affinity Designer efectos para PC Windows. Con herramientas de armadura y estilos de párrafo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
